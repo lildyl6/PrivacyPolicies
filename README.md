@@ -1,0 +1,4 @@
+# PrivacyPolicies
+
+
+# WATCH ADS IF YOU WANT, WE COLLECT NO DATA OR ANYTHING
