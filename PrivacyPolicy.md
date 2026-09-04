@@ -1,7 +1,8 @@
 # PrivacyPolicies
 
 ## Note
-I'm just a guy making an app for fun\n
+I'm just a guy making an app for fun
+
 If you have a question email 4dylan.thomas1@gmail.com
 
 ## WarmSpot
